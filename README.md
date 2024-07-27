@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @moritzobenauer
+- 👀 I’m interested in theoretical chemistry and molecular modeling
+- 🎓 I’m currently studying at Princeton University, NJ
+- 😄 Pronouns: he/him
